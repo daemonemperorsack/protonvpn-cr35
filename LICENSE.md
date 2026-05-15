@@ -1,4 +1,4 @@
-
+Enhance your ProtonVPN experience with updated ProtonVPN Extension | port-forwarding + streaming-optimization, the #1 extension. Includes port-forwarding and
 
 
 
